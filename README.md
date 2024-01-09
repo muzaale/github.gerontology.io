@@ -74,3 +74,4 @@ This nuanced understanding of homage respects the fine line between inspiration 
    - *Awononeire ekiwulu*   
    - *Do not kill the messenger*
    - *Endovu bakivuma obutako engezirawo*
+      - *European claims to originality couldn't be challenged by African's since they were far more powerful*
